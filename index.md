@@ -24,4 +24,4 @@ Just 1 Is Public!
 
 ### Contact Or Support!
 
-DM Or Add (Wet#0404) On Discord For Help!
+DM Or Add (Wet#0404) On Discord For Help.!
